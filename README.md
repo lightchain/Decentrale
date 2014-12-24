@@ -1,0 +1,4 @@
+Decentrale
+==========
+
+Decentralist Manifesto
