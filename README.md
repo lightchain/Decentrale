@@ -27,7 +27,7 @@ A good society cannot be created unless a determining number of the thoughtful a
 
 For this reason, some such program of educational reform as is here presented is absolutely essential. 
 
-  1. A New Leadership. The leadership which the priests lost to the warriors, the warriors to the kings, the kings to the business men, the business men to the financiers, and which the financiers are now losing to the politicians, must be assumed by a group which sharply distinguishes between the exercise of influence and the exercise of power. The minority of concerned and thoughtful teachers and .writers, of poets and preachers, of artists and scientists, of physicians and lawyers, who constitute the real leadership of any society, must be. reborn. They should consecrate themselves to the search and realization of what is true, what is good, what is beautiful. 
+    1. A New Leadership. The leadership which the priests lost to the warriors, the warriors to the kings, the kings to the business men, the business men to the financiers, and which the financiers are now losing to the politicians, must be assumed by a group which sharply distinguishes between the exercise of influence and the exercise of power. The minority of concerned and thoughtful teachers and .writers, of poets and preachers, of artists and scientists, of physicians and lawyers, who constitute the real leadership of any society, must be. reborn. They should consecrate themselves to the search and realization of what is true, what is good, what is beautiful. 
 
 They must go even further. 
 
